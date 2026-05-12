@@ -1,4 +1,4 @@
-#  
+#  stealth one tap Scripts offers the most advanced one tap Script, with teleport and anti-ban. Perfect for dominating any match.
 
 
 
